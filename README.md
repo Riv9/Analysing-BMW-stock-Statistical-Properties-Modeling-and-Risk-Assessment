@@ -1,0 +1,1 @@
+# Analysing-BMW-stock-Statistical-Properties-Modeling-and-Risk-Assessment
